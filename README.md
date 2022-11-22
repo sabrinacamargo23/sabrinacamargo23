@@ -34,6 +34,17 @@ JAQUETAS JEANS APARTIR DE R$80,00
 
 ![Image](https://user-images.githubusercontent.com/114511956/193905539-9fb04b9e-430b-4bc2-b04c-65c751e4e53b.jpg)
 
+instagram @cantinho_do_jeans
+
+facebook  cantinho do jeans
+
+contato 41 97070-7070
+
+todas as peças da loja com 20% de desconto
+
+aceitamos os cartões abaixo
+![image](https://user-images.githubusercontent.com/114511956/203372570-ddf53141-073b-4256-850a-3b2e9e947de2.png)
+
 
 
 
