@@ -1,7 +1,7 @@
 A.S CANTINHO DO JEAN
 
 
-SHORTS APARTIR DE DE R$40,00
+SHORTS A PARTIR DE R$ 40,00
 
 ![Image](https://user-images.githubusercontent.com/114511956/193902303-6b7ad413-adb6-449a-8944-5a0fff5e6239.jpg)
 
@@ -15,7 +15,7 @@ SHORTS APARTIR DE DE R$40,00
 
 
 
-calças jeans apartir de R$60,00
+CALÇAS JEANS A PARTIR DE R$ 60,00
 
 ![Image](https://user-images.githubusercontent.com/114511956/193904710-bb29ef06-9042-4238-ad2e-c51311cde3b2.jpg)
 
@@ -26,7 +26,7 @@ calças jeans apartir de R$60,00
 
 
 
-JAQUETAS JEANS APARTIR DE R$80,00
+JAQUETAS JEANS A PARTIR DE R$ 80,00
 
 ![Image](https://user-images.githubusercontent.com/114511956/193905346-885f6c9a-0124-46d4-af54-ff782a6aa8c1.jpg)
 
@@ -34,15 +34,17 @@ JAQUETAS JEANS APARTIR DE R$80,00
 
 ![Image](https://user-images.githubusercontent.com/114511956/193905539-9fb04b9e-430b-4bc2-b04c-65c751e4e53b.jpg)
 
-instagram @cantinho_do_jeans
+Instagram @cantinho_do_jeans
 
-facebook  cantinho do jeans
+Facebook  cantinho do jeans
 
-contato 41 97070-7070
+Contato 41 97070-7070
 
-todas as peças da loja com 20% de desconto
+Todas as peças da loja com 20% de desconto 
+NO PIX OU à VISTA
 
-aceitamos os cartões abaixo 
+ACEITAMOS OS CARTÕES ABAIXO
+com 10% de desconto
 ![image](https://user-images.githubusercontent.com/114511956/203372570-ddf53141-073b-4256-850a-3b2e9e947de2.png)
 
 
