@@ -42,7 +42,7 @@ contato 41 97070-7070
 
 todas as peças da loja com 20% de desconto
 
-aceitamos os cartões abaixo
+aceitamos os cartões abaixo 
 ![image](https://user-images.githubusercontent.com/114511956/203372570-ddf53141-073b-4256-850a-3b2e9e947de2.png)
 
 
